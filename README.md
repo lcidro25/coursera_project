@@ -1,1 +1,1 @@
-# coding-project-template
+# Garden of Eve - Where Nature Finds A Home!
